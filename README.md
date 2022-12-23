@@ -1,0 +1,2 @@
+# polatdemir
+Mavi tik
